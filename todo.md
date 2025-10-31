@@ -1,0 +1,1 @@
+bazen bazı şeyler olur
